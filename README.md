@@ -60,6 +60,11 @@ Step into the world of **Jackie Chan Adventures**, where Jackie must protect the
 
 ## 📸 Preview
 
+![image](https://github.com/user-attachments/assets/5c23d9f5-85f5-455b-b44c-58999b905824)
+
+![image](https://github.com/user-attachments/assets/185eaf0d-03fa-4ea8-a531-df97b6408b11)
+
+
 _
 ---
 
